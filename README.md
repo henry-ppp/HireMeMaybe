@@ -1,2 +1,2 @@
 # HireMeMaybe
-HireMeMaybe is where you can automate, optimize and track and your job application. We understand the stress and fear in job applying, and we are here to help you rewind. 
+HireMeMaybe is where you can automate, optimize and track and your job application. We know job searching can be stressful and scary, and we’re here to help you unwind, refocus, and move forward with confidence.
